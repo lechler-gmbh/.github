@@ -12,3 +12,9 @@ Continuous improvement corresponds to our philosophy. Right from the early days 
 
 »Longevity and quality are always good business. Who only lives as a result of wear, wears down their customers. We prefer to convince through performance, know-how and a long-term partnership.«
 Prof. Walter H. Lechler (1942 – 2018)
+
+For more information visit [https://www.lechler.com/](https://www.lechler.com/)
+
+---
+
+![](https://www.lechler.com/fileadmin/_processed_/1/d/csm_lechler_unternehmen_karte-lechler-weltweit_12-spalten_en_45a1688008.jpg)
